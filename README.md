@@ -33,7 +33,7 @@ ArDiza Tech is growing toward a broader technology ecosystem focused on useful d
 
 ## 🌐 Visit ArDiza Tech
 
-[Explore our website](https://ardidzatech.sregle.com)
+[Explore our website](https://ardizatech.sregle.com)
 
 ---
 
